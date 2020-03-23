@@ -6,6 +6,8 @@ permalink: /about/
 
 Hey, I'm Rick.
 
-I do product development, program management, and subscriber growth.
+I do product and program management.
+
+I enjoy helping people be more effective at work with better products, technology, and processes. 
 
 When not working, I watch a lot of NBA, snowboard, golf, and play with my dog.
