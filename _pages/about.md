@@ -14,4 +14,3 @@ When not working, I watch a lot of NBA, snowboard, golf, and play with my dog.
 
 I'm also a bit of a content junkie, and think a lot about how business, policy, and societal trends actually impact people.
 <br/>
----
