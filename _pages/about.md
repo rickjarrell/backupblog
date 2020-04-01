@@ -6,9 +6,7 @@ permalink: /about/
 
 Hey, I'm Rick.
 
-I've spent my entire career building digital media and software products.
-
-Most of all, I enjoy helping people be more effective at work with better products, technology, and processes.
+I build digital media and software products.
 
 When not working, I watch a lot of NBA, snowboard, golf, and play with my dog.
 
