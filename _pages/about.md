@@ -13,6 +13,4 @@ I've worked in digital media and enterprise software.
 When not working, I watch a lot of NBA, snowboard, and golf.
 <br/>
 
-<hr>
-
 ## Get updates from me
