@@ -12,9 +12,9 @@ When not working, I watch a lot of NBA, snowboard, and golf.
 
 I stay curious and like to explore a variety of subjects. Right now, I'm interested in:
 
-- Regulation and deregulation of business
 - How business trends impact society, good and bad
-- Transformation of boring but fascinating billion dollar industries
+- Ongoing disruption of digital media and publishing
+- Regulation and deregulation of business
 - Technology’s impact on the frontline workforce
 - The business of personal finance and it’s impact on people
 
