@@ -6,10 +6,11 @@ permalink: /about/
 
 Hey, I'm Rick.
 
-I'm a product manager, content junkie, and animal lover.
+I'm a product manager, content junkie, and dog lover.
 
-When not working, I watch a lot of NBA, snowboard, golf, and play with my dog.
+I've worked in digital media and enterprise software.
 
+When not working, I watch a lot of NBA, snowboard, and golf.
 <br/>
 
 ## Get updates from me
