@@ -18,8 +18,8 @@ I stay curious and like to explore a variety of subjects. Right now, I'm interes
 - Technology’s impact on the frontline workforce
 - The business of personal finance and it’s impact on people
 
-Writing helps formulate my thoughts. I do that here and in my newsletter. While I may be confident in my pontifications, ultimately, these are just my opinions and I'm happy to be proven wrong.
+Writing helps formulate my thoughts. I do that here and in my [newsletter](www.rickjarrell.com/newsletter).
 
-<br/>
+I'm confident in my pontifications, but these are just my opinions and I'm happy to be proven wrong.
 
 ## Get updates from me
