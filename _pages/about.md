@@ -6,11 +6,20 @@ permalink: /about/
 
 Hey, I'm Rick.
 
-I'm a product manager, content junkie, and dog lover.
-
-I've worked in digital media and enterprise software.
+I'm a product manager, content junkie, and dog lover. I've worked in digital media and enterprise software and have an MBA from UW-Madison.
 
 When not working, I watch a lot of NBA, snowboard, and golf.
+
+I stay curious and like to explore a variety of subjects. Right now, I'm interested in:
+
+- Regulation and deregulation of business
+- How business trends impact society, good and bad
+- Transformation of boring but fascinating billion dollar industries
+- Technology’s impact on the frontline workforce
+- The business of personal finance and it’s impact on people
+
+Writing helps formulate my thoughts. That can lead to pontification, but I try to be self-aware enough to know that most things are just ideas and it's ok to be wrong.
+
 <br/>
 
 ## Get updates from me
