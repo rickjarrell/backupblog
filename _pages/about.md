@@ -18,7 +18,7 @@ I stay curious and like to explore a variety of subjects. Right now, I'm interes
 - Technology’s impact on the frontline workforce
 - The business of personal finance and it’s impact on people
 
-Writing helps formulate my thoughts. That can lead to pontification, but I try to be self-aware enough to know that most things are just ideas and it's ok to be wrong.
+Writing helps formulate my thoughts. I do that here and in my newsletter. While I may be confident in my pontifications, ultimately, these are just my opinions and I'm happy to be proven wrong.
 
 <br/>
 
