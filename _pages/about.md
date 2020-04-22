@@ -12,14 +12,14 @@ When not working, I watch a lot of NBA, snowboard, and golf.
 
 I stay curious and like to explore a variety of subjects. Right now, I'm interested in:
 
-- How business trends impact society, good and bad
-- Ongoing disruption of digital media and publishing
-- Regulation and deregulation of business
+- How business trends impact society, both good and bad
 - Technology’s impact on the frontline workforce
-- The business of personal finance and it’s impact on people
+- Decaying digital media and publishing industry
+- Regulation and deregulation of business
+- Consumer finance through the lens of personal finance
 
 Writing helps formulate my thoughts. I do that here and in my [newsletter](www.rickjarrell.com/newsletter).
 
-I'm confident in my pontifications, but these are just my opinions and I'm happy to be proven wrong.
+I'm confident in my pontifications, but these are just my opinions. This is a learning exercise. I'm happy to be proven wrong.
 
 ## Get updates from me
