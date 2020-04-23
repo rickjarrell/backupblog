@@ -18,7 +18,7 @@ I stay curious and like to explore a variety of subjects. Right now, I'm interes
 - Regulation and deregulation of business
 - Consumer finance through the lens of personal finance
 
-Writing helps formulate my thoughts. I do that here and in my [newsletter](www.rickjarrell.com/newsletter).
+Writing helps formulate my thoughts. My thoughts about life are here; business thoughts in my [newsletter](www.rickjarrell.com/newsletter).
 
 I'm confident in my pontifications, but these are just my opinions. This is a learning exercise. I'm happy to be proven wrong.
 
