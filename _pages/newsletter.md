@@ -1,6 +1,5 @@
 ---
 layout: page
-title: 
+title:
 permalink: /newsletter/
 ---
-## The Business End
