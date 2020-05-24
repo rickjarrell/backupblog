@@ -10,4 +10,4 @@ I’m a product manager with experience in enterprise software and digital media
 
 I watch a lot of basketball and have an affinity for dogs.
 
-I write an occssional newsletter with musings on business, money, and work trends that I find interesting. Sign up at [rickjarrell.substack.com](http://rickjarrell.substack.com).
+I write an occasional newsletter with musings on business, money, and work trends that I find interesting. Sign up at [rickjarrell.substack.com](http://rickjarrell.substack.com).
